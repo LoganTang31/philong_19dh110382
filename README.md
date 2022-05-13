@@ -26,7 +26,7 @@ Danh sách nhóm:
 
 
 
-4.Lê Thanh My –19DH110
+4.Lê Thanh My –19DH11024
 
 
-5.Quang
+5.Nguyễn Ngọc Quang-19DH110483
